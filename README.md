@@ -4,4 +4,4 @@
 
 
 
-![image](https://github.com/s1newaves/s1newaves.github.io/assets/100699665/3662d08a-db82-464e-aaf1-a238b5f75215)
+![image](https://github.com/s1newaves/s1newaves.github.io/assets/image.png)
